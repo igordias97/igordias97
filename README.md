@@ -48,4 +48,4 @@ ensuring efficiency, safety, and quality in every delivery.
 - Safety compliance (**NR-12**)  
 - Fluent English for global corporate environments  
 
-📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/igordias97/) 
+📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/igordias97/?locale=en_US) 
